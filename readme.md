@@ -1,1 +1,1 @@
-My name is Shuvo Datta
+My name is Shuvo Datta. I want to be a full strack web developer;
